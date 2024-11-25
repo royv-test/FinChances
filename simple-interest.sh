@@ -1,1 +1,1 @@
-
+Goal, better conditions.
